@@ -1,2 +1,0 @@
-# Steyr-stadt
-Stadt Steyr
